@@ -18,3 +18,12 @@ https://www.youtube.com/watch?v=4HxuC740cI4
 See a good pick for intermediate below
 
 https://www.youtube.com/watch?v=NO5B_AN7wzg
+
+
+see another below:
+
+Stories in SPANISH for Beginners ►Learn Spanish with stories. English subtitles and FREE PDF
+
+https://www.youtube.com/watch?v=L8JEYw2QbT0
+
+
