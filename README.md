@@ -10,3 +10,8 @@ Spanish Story for Beginners with English Subtitles - Improve your Listening in S
 https://www.youtube.com/watch?v=fjYhBrbehys
 
 
+Una Sorpresa en el Jardín | Spanish Story for Beginners (A1-A2) with English Subtitles
+
+https://www.youtube.com/watch?v=4HxuC740cI4
+
+
