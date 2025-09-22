@@ -11,7 +11,9 @@ Las Gemas de Nevada (The Gems of Nevada) is an original Spanish short story, ide
 
 
 
+Training link below
 
+https://ericaraylanguage.com/thank-you-90-days/
 
 
 
